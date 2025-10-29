@@ -2,5 +2,5 @@
 
 - 🔭 I’m currently working at Hexaware technologies as Associate Software Engineer.
 - 😄 Pronouns: She
-- ⚡ Fun fact: I am good at everythng!
+- ⚡ Fun fact: I am good at everything!
 -->
